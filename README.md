@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ankitkrtiwari7
-- 👀 I’m interested in  .......
+- 👀 I’m interested in  Data Scientist Job
 - 🌱 I’m currently learning in Almabetter 
 - 💞️ I’m looking to collaborate on ....
 - 📫 How to reach me whatspp ( 7050220528) 
